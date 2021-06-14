@@ -1,1 +1,0 @@
-# MaulanaMA_BPWL
